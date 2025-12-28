@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 I'm currently working on: Building and optimizing websites, landing pages, and growth-focused digital campaigns.<br><br>🤝 I'm looking to collaborate on: Web development projects, WordPress builds, landing page optimization, and marketing-driven products.<br><br>🆘 I'm looking for help with: Scaling web projects, advanced SEO strategies, and performance-focused UI/UX improvements.<br><br>📚 I'm currently learning: Modern web performance optimization, conversion-focused design, and advanced digital marketing strategies.<br><br>💬 Ask me about: WordPress development, website optimization, SEO, Meta & Google Ads, and digital growth strategies.<br><br>⚡ Fun fact: I’m a B.Tech CSE graduate and patent holder who blends web development with marketing to drive real business results.
+🚀 Working on: Websites, landing pages & growth-focused digital campaigns<br><br>🤝 Collaborate on: Web development, WordPress projects & marketing-driven products<br><br>🆘 Need help with: Scaling websites, advanced SEO & performance UI/UX<br><br>📚 Learning: Web performance, CRO-focused design & advanced digital marketing<br><br>💬 Ask me about: WordPress, SEO, Meta & Google Ads, digital growth<br><br>⚡ Fun fact: B.Tech CSE graduate & patent holder blending tech with marketing 🚀
 
 
 ## 🌐 Socials:
